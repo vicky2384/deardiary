@@ -1,2 +1,2 @@
 # deardiary
-gettting bored in pandemiv so its just my diary nd i wanna explore myself
+gettting bored in pandemic so I thought I not go for a diary entry,so I did this
